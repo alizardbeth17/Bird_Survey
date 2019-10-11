@@ -12,3 +12,5 @@ Run Analysis
 Run Analysis
 
 Save Table
+
+Save small figure
