@@ -17,3 +17,6 @@ Save small figure
 
 
 Devin is a meme
+
+
+Today is Friday.... YAYYYYYYYYYYY.... Why am I still in class????? Help!
